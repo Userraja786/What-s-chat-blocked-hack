@@ -1,1 +1,1 @@
-# What-s-chat-blocked-hack
+# Whatsapp-chat-blocked-hack
